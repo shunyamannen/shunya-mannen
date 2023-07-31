@@ -1,6 +1,6 @@
 # shunya　mannennm
 #HEllo
-#konnnitiwa a
+#konnnitiwa aあ
 #hajimemashite
 ｍ　ｎ
 l
